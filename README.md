@@ -1,0 +1,1 @@
+# awesome-harvest-alternatives-2026
